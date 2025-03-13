@@ -2,7 +2,7 @@
 
 **Last Updated**: March 13, 2025
 
-안녕하세요.
+물 주세요.
 
 ---
 
@@ -16,7 +16,7 @@
 ---
 
 ## 📡 Contacts
-- **Email**: [mfda.team@gmail.com](mailto:mfda.team@gmail.com)
+- **Email**: [yangpakungya35@gmail.com](yangpakungya35@gmail.com)
 
 ---
 
