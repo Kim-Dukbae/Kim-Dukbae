@@ -25,4 +25,4 @@
 
 ---
 
-| © 2025 Kimduckbae |
+| © 2025 Kim-Dukbae |
