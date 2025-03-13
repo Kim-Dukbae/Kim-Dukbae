@@ -25,4 +25,4 @@
 
 ---
 
-© 2025 Kimduckba |
+© 2025 Kimduckbae |
