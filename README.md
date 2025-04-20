@@ -15,7 +15,7 @@
 ---
 
 ## 📡 Contacts
-- **Email**: [mfda.team@gmail.com](mfda.team@gmail.com)
+- **Email**: (mfda.team@gmail.com)
 
 ---
 
