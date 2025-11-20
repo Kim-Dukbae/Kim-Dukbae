@@ -15,7 +15,7 @@
 ---
 
 ## 📡 Contacts
-- **Email**: mfda.team@gmail.com
+- **Email**: ixorell.team@gmail.com
 - **website**: [ixorell.netlify.app](https://ixorell.netlify.app/)
 ---
 
